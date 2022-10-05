@@ -1,2 +1,2 @@
 # turmaB-3tri
-Quarta-feira das 19h as 20h40
+Quarta-feira das 19h às 20h40
